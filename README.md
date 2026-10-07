@@ -1,0 +1,1 @@
+# tam-okul-10-sinif-das-biyoloji-2026-2027
